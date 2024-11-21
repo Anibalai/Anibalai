@@ -1,0 +1,7 @@
+- 🚀 Hi, I’m @Anibalai
+- 🌌 I’m interested in exploring innovations in AI, robotics, and data science, and making complex technology accessible to everyone.
+- 🔧 I’m currently learning more about cloud integration, container orchestration (like OpenShift), and wearable tech innovations.
+- 🤝 I’m looking to collaborate on projects related to sustainable tech, robotics, and educational tools that empower others to learn.
+- 📬 How to reach me: You can connect with me on Nunezspace.com or send me an email at spaceforceunited2050@gmail.com
+- 🤝 Pronouns: He/Him
+- 🚀 Fun fact: I enjoy experimenting with holograms and working on creative solutions like wearable water-harvesting technology!
